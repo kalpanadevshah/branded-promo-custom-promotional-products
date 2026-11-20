@@ -4,7 +4,7 @@
 
 ## About Branded Promo
 
-Branded Promo is a US supplier of custom promotional products and branded merchandise for businesses, organizations, schools, nonprofits, and event planners. The company helps customers source personalized products featuring their logos, artwork, and brand messaging for marketing campaigns, corporate events, trade shows, employee programs, and customer giveaways.
+[Branded Promo]([url](https://www.brandedpromo.com/)) is a US supplier of custom promotional products and branded merchandise for businesses, organizations, schools, nonprofits, and event planners. The company helps customers source personalized products featuring their logos, artwork, and brand messaging for marketing campaigns, corporate events, trade shows, employee programs, and customer giveaways.
 
 With an extensive selection of customizable merchandise, Branded Promo supports businesses looking for practical branded products, bulk promotional items, and tailored merchandise for different audiences and occasions.
 
